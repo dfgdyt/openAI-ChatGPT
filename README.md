@@ -1,5 +1,5 @@
 <div align="center">
-<h1 align="center">ChatGPT3.5/4.0GPT-APIKEY-free</h1>
+<h1 align="center">ChatGPT3.5/4.0账号购买</h1>
 
 支持 **ChatGPT账号GPT-4** / ChatGPTGPT-3.5账号
 
